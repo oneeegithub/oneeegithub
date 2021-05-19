@@ -1,2 +1,2 @@
 - @oneeegithub
-- How to reach me: Discord Name one#9999
+- How to reach me: http://discord.com/users/693088939342561340
